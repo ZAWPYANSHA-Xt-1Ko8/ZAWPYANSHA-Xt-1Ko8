@@ -1,4 +1,4 @@
-<img width="10" height="1000" alt="Sticker Falling Sticker by Simon Falk - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/e1344142-1868-4d71-8bf6-d38395c88cd4" />
+<img width="1000" height="800" alt="Sticker Falling Sticker by Simon Falk - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/e1344142-1868-4d71-8bf6-d38395c88cd4" />
 
 <img width="399" height="273" alt="cosmogg" src="https://github.com/user-attachments/assets/cfac5d56-4d88-4903-8afa-4baedf84dc09" />
 
