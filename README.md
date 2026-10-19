@@ -1,4 +1,4 @@
-<img width="400" height="500" alt="Sticker Falling Sticker by Simon Falk - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/e1344142-1868-4d71-8bf6-d38395c88cd4" />
+<img width="10" height="1000" alt="Sticker Falling Sticker by Simon Falk - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/e1344142-1868-4d71-8bf6-d38395c88cd4" />
 
 <img width="399" height="273" alt="cosmogg" src="https://github.com/user-attachments/assets/cfac5d56-4d88-4903-8afa-4baedf84dc09" />
 
@@ -26,7 +26,7 @@ Asexual, Demi-boy
 </details>
 
 
-<img width="1095" height="500" alt="2026_10_19_0xo_Kleki" src="https://github.com/user-attachments/assets/1b947c5a-b74b-4a13-9715-bcb2a8fd5a33" />                                                about Pony Town : 
+<img width="1095" height="699" alt="2026_10_19_0xo_Kleki" src="https://github.com/user-attachments/assets/1b947c5a-b74b-4a13-9715-bcb2a8fd5a33" />                                                about Pony Town : 
 
                                            you can get ideas from my skin, but don't completely copy it!
                                            
