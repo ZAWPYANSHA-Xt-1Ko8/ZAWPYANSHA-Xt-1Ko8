@@ -41,4 +41,4 @@ Asexual, Demi-boy
                                          
 <img width="500" height="200" alt="tải xuống" src="https://github.com/user-attachments/assets/f980c574-8e25-4a46-a952-a63f77b713a9" />
 
-unfinished oopsie 😳😳
+unfinished oopsie 😳😳 im too nob to make ts im sorry if its ugly in yo eyes 😓!!
