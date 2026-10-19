@@ -26,7 +26,7 @@ Asexual, Demi-boy
 </details>
 
 
-<img width="1095" height="699" alt="2026_10_19_0xo_Kleki" src="https://github.com/user-attachments/assets/1b947c5a-b74b-4a13-9715-bcb2a8fd5a33" />                                                about Pony Town : 
+<img width="1095" height="590" alt="2026_10_19_0xo_Kleki" src="https://github.com/user-attachments/assets/1b947c5a-b74b-4a13-9715-bcb2a8fd5a33" />                                                about Pony Town : 
 
                                            you can get ideas from my skin, but don't completely copy it!
                                            
