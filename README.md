@@ -28,6 +28,7 @@ Asexual, Demi-boy
 
 
 <img width="1095" height="607" alt="2026_10_19_0xo_Kleki" src="https://github.com/user-attachments/assets/1b947c5a-b74b-4a13-9715-bcb2a8fd5a33" />                                                about Pony Town : 
+
                                            you can get ideas from my skin, but don't completely copy it!
                                            
                                           yk, i hate people who steal my skins and clam them as their own  
@@ -38,3 +39,4 @@ Asexual, Demi-boy
                                       i often stay alone, but sometimes my friends will come hang out with me
                                          
 
+unfinished oopsie 😳😳
