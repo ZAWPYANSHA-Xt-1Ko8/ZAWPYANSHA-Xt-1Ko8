@@ -1,6 +1,6 @@
 <img width="1000" height="800" alt="Sticker Falling Sticker by Simon Falk - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/e1344142-1868-4d71-8bf6-d38395c88cd4" />
 
-<img width="199" height="152" alt="cosmogg" src="https://github.com/user-attachments/assets/cfac5d56-4d88-4903-8afa-4baedf84dc09" />                   <img width="500" height="250" alt="tải xuống (1)" src="https://github.com/user-attachments/assets/20fdc17f-39af-4bbf-be4d-ed61fe4827f6" />
+<img width="399" height="353" alt="cosmogg" src="https://github.com/user-attachments/assets/cfac5d56-4d88-4903-8afa-4baedf84dc09" />                   <img width="500" height="359" alt="tải xuống (1)" src="https://github.com/user-attachments/assets/20fdc17f-39af-4bbf-be4d-ed61fe4827f6" />
 
 
 <details>
