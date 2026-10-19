@@ -1,6 +1,5 @@
-```python
-i love you !!
-```
+<img width="600" height="500" alt="Sticker Falling Sticker by Simon Falk - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/e1344142-1868-4d71-8bf6-d38395c88cd4" />
+
 <img width="499" height="373" alt="cosmogg" src="https://github.com/user-attachments/assets/cfac5d56-4d88-4903-8afa-4baedf84dc09" />
 
 <details>
@@ -37,6 +36,8 @@ Asexual, Demi-boy
                                                       you can freely to interact with me    
                                                       
                                       i often stay alone, but sometimes my friends will come hang out with me
+                                      
                                          
+<img width="400" height="200" alt="tải xuống" src="https://github.com/user-attachments/assets/f980c574-8e25-4a46-a952-a63f77b713a9" />
 
 unfinished oopsie 😳😳
