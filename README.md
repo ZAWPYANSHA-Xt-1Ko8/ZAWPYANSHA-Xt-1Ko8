@@ -1,14 +1,8 @@
 <img width="1000" height="800" alt="Sticker Falling Sticker by Simon Falk - Find   Share on GIPHY" src="https://github.com/user-attachments/assets/e1344142-1868-4d71-8bf6-d38395c88cd4" />
 
-<p align="center">
-  <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=2000&color=7430B0&width=500&duration=3000&repeat=false&lines=%22+H-hey+Blot..!+How+are+you..?+%22" alt="Purple Character" />
-  </a>
-  <br>
-  <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=37383B&width=500&repeat=false&lines=;%22+I+should+be+the+one+askin+you+that!%3F+%22" alt="Grey Character" />
-  </a>
-</p>
+  <p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=404142&width=435&lines=%22+em+GUH+slp+dna+%2cereh+emoC+!netxoB%22" alt="Typing SVG" /></a>
+
 
 <details>
                                                                                                                            <summary>about meh!</summary>
